@@ -1,7 +1,7 @@
 Unveiling Excellence: Gojek Clone Unraveled
 
 Explore the limitless possibilities with the Gojek Clone, a revolutionary platform that brings a myriad of services under one roof. Discover the key features, benefits, and why this innovative solution is a game-changer.
-https://miracuves.com/solutions/super-uber/gojek-clone/
+https://miracuves.com/solutions/gojek-clone/
 
 Introduction
 In the dynamic landscape of on-demand services, the Gojek Clone stands tall as a versatile solution, seamlessly integrating numerous services into a single app. From transportation and delivery to lifestyle services, this article delves into the depths of the Gojek Clone, unraveling its features and shedding light on why it's the go-to choice for many.
